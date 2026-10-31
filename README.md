@@ -1,9 +1,8 @@
 # Muhamad Hamze — Cybersécurité & Sécurité des systèmes
 
-Candidat M2 Cybersécurité & Informatique Légale — UGA Grenoble
+M2 Cybersécurité & Informatique Légale — UGA Grenoble
 
-Recherche une **alternance cybersécurité** à partir de sept. 2026
-(rythme : 2 sem. formation / 3–4 sem. entreprise)
+Alternant - Chargé des missions cybersécurités et SI
 
 ---
 
